@@ -230,7 +230,7 @@ Toisen momentin mukaan, jos velallisen ja velkojan välillä on sovittu velkajä
 
 > 86 § on kumottu L:lla 4.8.2000/714.
 
-Pykälä on kumottu lailla 4.8.2000/714, kuten lähteen ajantasaistetussa tekstissä todetaan. Kumottu pykälä on säilytetty lain numeroinnissa, eikä sen paikalle ole säädetty uutta sisältöä, minkä vuoksi lain 11 luvun pykälänumerointi jatkuu 85 §:stä suoraan 87 §:ään. Kumoamisen jälkeen pykälällä ei ole voimassa olevaa normisisältöä, eikä siihen voida soveltamistilanteessa vedota. Kumotun säännöksen aiempaa sisältöä ei ilmene tämän kommentaarin lähteenä käytetystä ajantasaisesta tekstistä, joten siitä ei tässä esitetä arvioita.
+Pykälä on kumottu lailla 4.8.2000/714, kuten lähteen ajantasaistetussa tekstissä todetaan. Pykälänumero on säilytetty lain numeroinnissa pelkkänä kumoamismerkintänä, eikä sen paikalle ole säädetty uutta sisältöä, joten 11 luvussa 85 §:ää seuraava voimassa oleva säännös on 87 §. Kumoamisen jälkeen pykälällä ei ole voimassa olevaa normisisältöä, eikä siihen voida soveltamistilanteessa vedota. Kumotun säännöksen aiempaa sisältöä ei ilmene tämän kommentaarin lähteenä käytetystä ajantasaisesta tekstistä, joten siitä ei tässä esitetä arvioita.
 
 ### 87 § — Velkajärjestelyrekisteri
 
